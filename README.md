@@ -4,5 +4,4 @@
 
 ![image](https://user-images.githubusercontent.com/32405554/235198241-0a831dbb-8059-45f7-9feb-ced77635325c.png)
 
-### Observação: Logo logo irei hospedar o resultado. 
 
